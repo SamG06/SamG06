@@ -1,4 +1,4 @@
-### 😄 I’m currently learning ... anything I can!
+### Sorry nothing yet... but since you came all this way here have a taco 🌮 
 
 <!--
 **SamG06/SamG06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
