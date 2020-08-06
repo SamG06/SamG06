@@ -1,4 +1,4 @@
-### 🌱 I’m currently learning ... anything I can!
+### 😄 I’m currently learning ... anything I can!
 
 <!--
 **SamG06/SamG06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
